@@ -1,0 +1,3 @@
+- 👋 Hi, I’m um@r6754
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding
